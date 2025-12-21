@@ -2,7 +2,7 @@
 
  ────── ⋆⋅☆⋅⋆ ──────
 
- # *"we're ending this ."*
+# *"we're ending this ."*
 
 hellowww .. i am just a littl guy ..
 
